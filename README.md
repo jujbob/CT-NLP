@@ -10,5 +10,5 @@ https://docs.google.com/spreadsheets/d/1LWZm8qPpVh22_QUFAGDqdij1i132YrFX9tDwF08Y
  - There is no final term!! It has been decided to agree on all students
 
 
-## Final Presentation
+## Mutual Evaluation of Final Presentation
 https://forms.gle/dGQxeTBbActGHmcB8
