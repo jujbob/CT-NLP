@@ -8,3 +8,7 @@ https://docs.google.com/spreadsheets/d/1LWZm8qPpVh22_QUFAGDqdij1i132YrFX9tDwF08Y
 
 ## Final-term
  - There is no final term!! It has been decided to agree on all students
+
+
+## Final Presentation
+[https://docs.google.com/spreadsheets/d/1LWZm8qPpVh22_QUFAGDqdij1i132YrFX9tDwF08Y-AQ/edit?usp=sharing](https://forms.gle/dGQxeTBbActGHmcB8)
