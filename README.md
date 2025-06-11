@@ -11,4 +11,4 @@ https://docs.google.com/spreadsheets/d/1LWZm8qPpVh22_QUFAGDqdij1i132YrFX9tDwF08Y
 
 
 ## Final Presentation
-[[https://docs.google.com/spreadsheets/d/1LWZm8qPpVh22_QUFAGDqdij1i132YrFX9tDwF08Y-AQ/edit?usp=sharing](https://forms.gle/dGQxeTBbActGHmcB8)](https://forms.gle/dGQxeTBbActGHmcB8)
+https://forms.gle/dGQxeTBbActGHmcB8
